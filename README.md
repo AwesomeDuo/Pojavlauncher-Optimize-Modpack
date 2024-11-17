@@ -13,4 +13,4 @@ There is no sodium as sodium is not supported by POJAVLAUNCHER as you can see he
 
 Thanks From,
 Awesome Duo
-# Sub My YouTube channel to get updates https://youtube.com/@BudgetXRanox
+ Sub My YouTube channel to get updates # https://youtube.com/@BudgetXRanox
